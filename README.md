@@ -29,7 +29,7 @@ Writing can be learned!
 Learn how to part with your words!
 
 The secret of good writing is to strip every sentence to its cleanest components: 
-- every words that serves no function,
+- every word that serves no function,
 - every long word that could be a short word, 
 - every adverb that carries the same meaning that's already in the verb, 
 - every passive construction that leaves the reader unsure of who is doing what -
