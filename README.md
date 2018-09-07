@@ -90,6 +90,23 @@ Common clutter:
 
 ### Use Active Voice
 
+**Bad**: My first visit to Boston will always be remembered by me.
+
+**Good**: I will always remember my first visit to Boston.
+
+Advantages of the active voice:
+
+1. Emphasizes author responsibility 
+   - No attempt **was made** to contact non-responders because they **were deemed** unimportant to the analysis.
+   - **We did not attempt** to contact non-responders because **we deemed** them unimportant to the analysis.
+1. Improves readability
+   - A strong correlation **was found** between use of the passive voice and other sins of writing.
+   - **We found** a strong correlation between use of the passive voice and other sins of writing.
+1. Reduces ambiguity
+   - General dysfunction of the immune system at the leukocyte level **is suggested** by both animal and human studies.
+   - Both human and animal studies **suggest** that diabetics have general immune dysfunction at the leukocyte level.
+
+
 ### Write with Verbs
  
 - Use strong verbs
