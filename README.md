@@ -2,8 +2,10 @@
 
 ### Table of Contents
 
-- [Introduction](#Introduction)
-- [Principles of Effective Writing](#principles-effective-writing)
+- [Introduction](#introduction)
+- [Principles of Effective Writing](#principles-of-effective-writing)
+- [Punctuation](#punctuation)
+- [Tips](#tips)
 - [Resources](#resources)
 
 
@@ -24,7 +26,7 @@ Writing can be learned!
 
 ## Principles of Effective Writing
 
-### Cut unnecessary words and phrases
+### Cut Unnecessary Words and Phrases
  
 Learn how to part with your words!
 
@@ -128,8 +130,71 @@ Advantages of the active voice:
    - Make a decision = decide
    - Shows a peak = peaks
 - **Don't bury the main verb** (keep the subject and main verb close together at the start of the sentence)
+   
+## Punctuation
 
-## Grammar Tips
+Increasing power to separate:
+
+- Comma
+- Colon
+- Dash
+- Parenthesis
+- Semicolon
+- Period
+
+Increasing formality:
+
+- Dash
+- Parenthesis
+- Comma, Colon, Semicolon, Period
+
+**Semicolon** connects to independent clauses.
+
+*Example*: Kennedy could be a cold and vain man, and he led a life of privilege. But he knew something about the world;
+he also cared about it.
+
+*Example*: It was the best of times; it was the worst of times.
+
+Semicolons are also used to separate items in lists that contain internal punctuation.
+
+*Example*: It happened because people organized and voted for better prospects; because leaders enacted smart, forward
+looking policies; because people's perspectives opened up, and with them, societies did too.
+
+**Parenthesis** can be used to insert an afterthought or explanation (a word, phrase, or sentence) into a passage that 
+is grammatically complete without it.
+  - If you remove the material within the parentheses, the main point of the sentence should not change.
+  - Parentheses give the reader permission to skip over the material.
+  
+**Colon** can be used after an independent clause to introduce a list, quote, explanation, conclusion, or amplification.
+"The colon has more effect than the comma, less power to separate than the semicolon, and more formality than the dash." - Strunk and White.
+
+*Example* (list or explanation): The hydrogen bonds are made as follows: purine position 1 to pyrimidine position 1;
+purine position 6 to pyrimidine position 6.
+
+*Example* (explanation or amplification): That's one reason why I'm so optimistic about the future: the constant
+churn of scientific progress. 
+
+*Example* (to amplify or extend, joins two independent clauses if the second amplifies or extends the first): 
+Companies use Marsh for the same reason that home sellers use real estate agents: The agent's knowledge and 
+experience is supposed to help the client get the right deal at the right price.
+
+**Dash** can be used to add emphasis or to insert an abrupt definition or description almost anywhere in the sentence.
+
+*Example*: But my fellow Americans, whatever mix of motives led us to create an Electoral College majority for 
+Donald Trump to become president — and overlook his lack of preparation, his record of indecent personal behavior, 
+his madcap midnight tweeting, his casual lying about issues like “millions” of people casting illegal votes in this 
+election, the purveying of fake news by his national security adviser, his readiness to appoint climate change deniers 
+without even getting a single briefing from the world’s greatest climate scientists in the government he’ll soon lead 
+and his cavalier dismissal of the C.I.A.’s conclusions about Russian hacking of our election — have no doubt about 
+one thing: We as a country have just done something incredibly reckless.
+
+*Example*: The drugs did more than prevent new fat accumulation. They also triggered overweight mice to shed 
+significant amounts of fat - up to half their body weight. (emphasis)
+
+
+## Tips
+
+**Grammar**:
 
 1. "Data are" not "data is" (The word "data" is plural)
    - These data show an unusual trend.
@@ -142,3 +207,26 @@ Advantages of the active voice:
 1. That vs which
    - "That" is restrictive (defining pronoun)
    - "Which" is nonrestrictive (non-defining) pronoun
+   
+**Parallelism**
+
+Pairs of ideas joined by "and", "or", or "but" should be written in parallel form.
+
+*Example*: The velocity decreased by 50% but the pressure decreased by only 10%.
+
+*Another Example*:
+
+*Unparallel*: If you want to be a good doctor, you must study hard, critically think about the medical literature,
+and you should be a good listener.
+
+*Parallel*: If you want to be a good doctor you must study hard, listen well, and think critically about the medical 
+literature.
+
+**The rule of three's** (in lists, examples).
+
+*Example*: It happened because people organized and voted for better prospects; because leaders enacted smart,
+forward looking policies; because people's perspectives opened up, and with them, societies did too.
+
+## Resources
+
+- Writing in the Sciences https://www.coursera.org/learn/sciwrite
