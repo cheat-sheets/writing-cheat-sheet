@@ -231,17 +231,17 @@ forward looking policies; because people's perspectives opened up, and with them
 ## Steps in the Writing Process
 
 1. Prewriting (70% of the time) 
-  - Collect, synthesize, and organize information
-  - Brainstorm take-home messages
-  - Work out ideas away from the computer
-  - Develop a roadmap/outline
+   - Collect, synthesize, and organize information
+   - Brainstorm take-home messages
+   - Work out ideas away from the computer
+   - Develop a roadmap/outline
 1. Writing the first draft (10% of the time)
-  - Putting your facts and ideas together in organized prose
+   - Putting your facts and ideas together in organized prose
 1. Revision (20% of the time)
-  - Read you work out loud
-  - Get rid of clutter
-  - Do a verb check
-  - Get feedback from others
+   - Read you work out loud
+   - Get rid of clutter
+   - Do a verb check
+   - Get feedback from others
 
 ## Resources
 
