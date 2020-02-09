@@ -248,6 +248,9 @@ forward looking policies; because people's perspectives opened up, and with them
 - **Kill two birds with one stone** - produce two useful results by just doing one action.
 - **Cool, calm, and collected** - relaxed in control not nervous. Practicing meditation has helped me to be cool, 
 calm, and collected in times of trouble.
+- **Low-hanging fruit** - a thing or person that can be won, obtained, or persuaded with little effort.
+- **To get the lay of the land** - to learn the general situation or state of affairs, especially in preparation 
+for action.
 
 
 ## Resources
