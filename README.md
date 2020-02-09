@@ -183,10 +183,10 @@ experience is supposed to help the client get the right deal at the right price.
 
 *Example*: But my fellow Americans, whatever mix of motives led us to create an Electoral College majority for 
 Donald Trump to become president — and overlook his lack of preparation, his record of indecent personal behavior, 
-his madcap midnight tweeting, his casual lying about issues like “millions” of people casting illegal votes in this 
+his madcap midnight tweeting, his casual lying about issues like "millions" of people casting illegal votes in this 
 election, the purveying of fake news by his national security adviser, his readiness to appoint climate change deniers 
-without even getting a single briefing from the world’s greatest climate scientists in the government he’ll soon lead 
-and his cavalier dismissal of the C.I.A.’s conclusions about Russian hacking of our election — have no doubt about 
+without even getting a single briefing from the world's greatest climate scientists in the government he'll soon lead 
+and his cavalier dismissal of the C.I.A.'s conclusions about Russian hacking of our election — have no doubt about 
 one thing: We as a country have just done something incredibly reckless.
 
 *Example*: The drugs did more than prevent new fat accumulation. They also triggered overweight mice to shed 
@@ -242,6 +242,13 @@ forward looking policies; because people's perspectives opened up, and with them
    - Get rid of clutter
    - Do a verb check
    - Get feedback from others
+
+## Idioms
+
+- **Kill two birds with one stone** - produce two useful results by just doing one action.
+- **Cool, calm, and collected** - relaxed in control not nervous. Practicing meditation has helped me to be cool, 
+calm, and collected in times of trouble.
+
 
 ## Resources
 
