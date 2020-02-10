@@ -251,6 +251,14 @@ calm, and collected in times of trouble.
 - **Low-hanging fruit** - a thing or person that can be won, obtained, or persuaded with little effort.
 - **To get the lay of the land** - to learn the general situation or state of affairs, especially in preparation 
 for action.
+- **To be under the weather** - slightly unwell or in low spirits.
+- **To tie the knot** - to get married. (get hitched). Steve tied the know last Sunday.
+- **Eye candy** - pleasing for the eye. You car is eye candy. She is eye candy. Megan Fox was hired as eye candy
+for Transformers. I come to this bar because the bartenders are eye candy.
+- **No worries / It's all good**. I'm sorry I forgot your gift. No worries. Sorry I spilled coffee on your shirt. 
+It's all good.
+- **Not my cup of tea** - not what one likes or is interested in.
+- **It's raining cats and dogs**. Don't step in a poodle.
 
 
 ## Resources
