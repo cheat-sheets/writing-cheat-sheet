@@ -260,6 +260,20 @@ It's all good.
 - **Not my cup of tea** - not what one likes or is interested in.
 - **It's raining cats and dogs**. Don't step in a poodle.
 
+- **Something makes your day** - something makes you feel very happy.
+- **I am/feel on top of the world** - feel extreme happiness.
+- **It's not the end of the world** - what happened won't cause any serious problems.
+- **To drive someone up the wall** - make someone very angry/bored. The neighbours' loud music every night is driving
+me up the wall.
+- **At one's wits' end** - to be very upset, or at the limits of one's emotional or mental limitations. 
+I'm at my wits' end trying to keep things in order.
+- **To ring a bell [with smbd]** - make someone remember something indistinctly. *Doesn't ring any bells*.
+- **To put two and two together** - to conclude from the facts you know.
+- **I heard it through the grapevine** - heard it from someone who heard it from someone else.
+- **To put it down to experience** - something bad has happened, but you decide to learn from it instead of being
+upset by it.
+- **To have second thoughts** - to change your opinion/decision about something or start to doubt it.
+
 
 ## Resources
 
