@@ -7,6 +7,7 @@
 - [Punctuation](#punctuation)
 - [Tips](#tips)
 - [Steps in the Writing Process](#steps-in-the-writing-process)
+- [Idioms](#idioms)
 - [Resources](#resources)
 
 
@@ -245,10 +246,18 @@ forward looking policies; because people's perspectives opened up, and with them
 
 ## Idioms
 
-- **Kill two birds with one stone** - produce two useful results by just doing one action.
-- **Cool, calm, and collected** - relaxed in control not nervous. Practicing meditation has helped me to be cool, 
+### Popular
+
+- **Kill two birds with one stone** - produce two useful results by just doing one action. Ex.:  If we have to go to 
+Manchester for the meeting, then let’s visit Auntie Joan on the way there. We can kill two birds with one stone.
+- **Cool, calm, and collected** - relaxed in control not nervous. Ex.: Practicing meditation has helped me to be cool, 
 calm, and collected in times of trouble.
 - **Low-hanging fruit** - a thing or person that can be won, obtained, or persuaded with little effort.
+- **go down the rabbit hole** - To enter into a situation or begin a process or journey that is particularly strange, 
+problematic, difficult, complex, or chaotic, especially one that becomes increasingly so as it develops or unfolds. 
+Ex. Owning your own business is a huge responsibility that not everyone is prepared for. 
+Are you sure you're ready to go down the rabbit hole?
+- **Ballpark figure** - a rough or approximate number (guesstimate) to give a general idea of something.
 - **To get the lay of the land** - to learn the general situation or state of affairs, especially in preparation 
 for action.
 - **To be under the weather** - slightly unwell or in low spirits.
@@ -260,20 +269,55 @@ It's all good.
 - **Not my cup of tea** - not what one likes or is interested in.
 - **It's raining cats and dogs**. Don't step in a poodle.
 
-- **Something makes your day** - something makes you feel very happy.
+### Happiness and Sadness
+
 - **I am/feel on top of the world** - feel extreme happiness.
 - **It's not the end of the world** - what happened won't cause any serious problems.
+- **Something makes your day** - something makes you feel very happy.
+
+### Anger
+
 - **To drive someone up the wall** - make someone very angry/bored. The neighbours' loud music every night is driving
 me up the wall.
 - **At one's wits' end** - to be very upset, or at the limits of one's emotional or mental limitations. 
 I'm at my wits' end trying to keep things in order.
+
+### Knowing and Understanding
+
 - **To ring a bell [with smbd]** - make someone remember something indistinctly. *Doesn't ring any bells*.
 - **To put two and two together** - to conclude from the facts you know.
-- **I heard it through the grapevine** - heard it from someone who heard it from someone else.
+
+### Experience and Perception
+
 - **To put it down to experience** - something bad has happened, but you decide to learn from it instead of being
 upset by it.
 - **To have second thoughts** - to change your opinion/decision about something or start to doubt it.
+- **I heard it through the grapevine** - heard it from someone who heard it from someone else.
 
+### Success and Failure
+
+- **Turned out to be a blessing in disguise** - has a good effect even though at first it seemed it would be bad.
+- **Someone doesn't have the ghost of a chance** - they have no chance at all.
+- **Would go places** - would be successful (not used in the simple tense forms). I always knew Ahmed would go places. 
+He's been an excellent athlete since he was a teenager.
+- **Hit the big time** - be successful nationally or internationally and make lots of money. Ex.: He's a good writer,
+but he hasn't really ever hit the big time.
+- **Make a go of smth** - be very successful with smth. He's really made a go of that restaurant he bought.
+
+### Having Problems
+
+- I've **spread myself too thin** - am trying to do too many things at the same time, with the result that I can't give
+any of them the attention they need.
+- I've come up against a **stumbling block** - a problem which stops me from achieving something.
+- So now we are all going to have to **face the music**. accept criticism or punishment for what you have done. 
+
+## Phrasal Verbs
+
+### In/out
+
+- **Take** somebody **in** - deceive somebody. Ex.: The man said he was a policeman and I believed him. I was completely
+taken in.
+- **Eat out** - eat at a restaurant, not at home. Ex.: There wasn't anything to eat at home, so we decided to eat out.
 
 ## Resources
 
