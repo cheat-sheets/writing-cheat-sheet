@@ -268,6 +268,9 @@ for Transformers. I come to this bar because the bartenders are eye candy.
 It's all good.
 - **Not my cup of tea** - not what one likes or is interested in.
 - **It's raining cats and dogs**. Don't step in a poodle.
+- **I won't hold my breath**. It means that you don't expect it to happen, so you won't bother to hold your breath 
+in anticipation, or "await with bated breath." It's used as mildly sarcastic humor. 
+Ex.: I know he promised you a good job, but I won't hold my breath for that one.
 
 ### Happiness and Sadness
 
@@ -309,7 +312,13 @@ but he hasn't really ever hit the big time.
 - I've **spread myself too thin** - am trying to do too many things at the same time, with the result that I can't give
 any of them the attention they need.
 - I've come up against a **stumbling block** - a problem which stops me from achieving something.
-- So now we are all going to have to **face the music**. accept criticism or punishment for what you have done. 
+- So now we are all going to have to **face the music**. accept criticism or punishment for what you have done.
+
+### Dealing with problems
+
+- **Give it a shot** - give something a try. 
+- **Wave a magic wand** - find an easy way to solve a problem Ex.: I want to wave a magic wand and make things better.
+
 
 ## Phrasal Verbs
 
