@@ -8,6 +8,9 @@
 - [Tips](#tips)
 - [Steps in the Writing Process](#steps-in-the-writing-process)
 - [Idioms](#idioms)
+  - [My Toe is Killing Me](#my-toe-is-killing-me)
+  - [Tying the Knot](#tying-the-knot)
+  - [That's a Weight off My Shoulders!](#thats-a-weight-off-my-shoulders)
 - [Resources](#resources)
 
 
@@ -249,7 +252,7 @@ forward looking policies; because people's perspectives opened up, and with them
 ### Popular
 
 - **Kill two birds with one stone** - produce two useful results by just doing one action. Ex.:  If we have to go to 
-Manchester for the meeting, then let’s visit Auntie Joan on the way there. We can kill two birds with one stone.
+Manchester for the meeting, then let's visit Auntie Joan on the way there. We can kill two birds with one stone.
 - **Cool, calm, and collected** - relaxed in control not nervous. Ex.: Practicing meditation has helped me to be cool, 
 calm, and collected in times of trouble.
 - **Low-hanging fruit** - a thing or person that can be won, obtained, or persuaded with little effort.
@@ -319,6 +322,100 @@ any of them the attention they need.
 - **Give it a shot** - give something a try. 
 - **Wave a magic wand** - find an easy way to solve a problem Ex.: I want to wave a magic wand and make things better.
 
+### My Toe is Killing Me!
+
+1. **To be tied up with something or someone**. To be busy.
+2. **To be killing someone**. To be very painful.
+3. **A beauty**. A very good or vivid example of something; in this case, a really good example of a bad injury.
+4. **To do a number on something**. To damage, destroy, or hurt something badly.
+5. **A surefire way to do something**. A way that will definitely have a certain outcome or result.
+
+6. **To live something down**. To be allowed to forget about an
+embarrassing situation. This is used in the negative—to never
+or not live something down. A common way you'll hear this expression is the phrase "I'll never live this down!"
+7. **To outdo yourself**. To do something very well. To do better than
+you normally do.Note that this expression is often used in a sarcastic way.
+8. **A tall order**. An unusually difficult request.
+9. **To be out of the question**. To be impossible to accomplish.
+10. **To be back in the saddle**. To return to your normal activities,
+especially after an illness or injury. To be back in control of your normal activities.
+11. **To handle something**. To cope with or manage a situation.
+12. **To be a piece of cake**. To be very easy.
+13. **To take it easy**. To do things slowly and carefully, without tiring yourself.
+14. **To baby someone or something**. To treat very carefully and with great sensitivity.
+15. **To keep an eye on**. To watch carefully.
+16. **To get in touch with**. To contact, to talk to someone.
+17. **To drop by**. To visit someone.
+18. **To follow up on something**. To address or check on a situation later.
+
+### Tying the Knot
+
+1. **To tie the knot**. To get married.
+2. **To take the plunge**. To follow through on a big or life-changing
+decision.On the invitation, it has a double meaning. It refers both to a "plunge" into water at the beach party and to 
+the fact that Matt and Allison will be getting married.
+3. **To get cold feet**. To be or become afraid to do something. To
+have second thoughts.Notice that you can also say "have cold feet."
+4. **Stuffy**. Formal. Overly conservative in ceremony and style.
+5. **To let your hair down**. To celebrate in a free and uninhibited way.
+6. **To walk down the aisle**. To get married.
+7. **To not see something coming**. To not expect something. To be surprised by something.
+8. **A turnout**. The number of people at an event.Notice that there's also the verb "to turn out."
+9. **To get hitched**. To get married. These days, this expression is an informal, humorous, and exaggerated way to 
+say "to get married."
+10. **To pop the question**. To propose marriage to someone.
+11. **To lose your nerve**. To lose courage.
+12. **To turn someone or something down**. To say "no" to someone or something.
+13. **To settle on something**. To decide something after discussion, consideration, or negotiation.
+14. **To count on something**. To depend on something happening. To be sure something will happen.
+15. **To bail**. To leave a person or quit a project earlier than expected. 
+You can also say "to bail out on someone or something."
+16. **To beat around the bush**. To be indirect in approach in order to avoid confrontation.
+17. **To give it to someone straight**. To be direct and honest with someone.
+18. **To bully someone into something**. To force someone to do something.
+19. **To throw someone for a loop**. To surprise someone. To confuse someone with something unexpected.
+20. **To do a 180**. To change in a drastic way. To turn completely around.
+21. **To play the field**. To date many different people.
+22. **To settle down**. To grow comfortable and content in a routine or situation, especially in a relationship with 
+another person. Often, this implies growing older and more responsible, or less
+fun-loving and free, depending on how you look at it!
+23. **To be a wake-up call**. To be something that changes your view of what is important or possible.
+24. **To be seeing someone**. To date someone informally.
+25. **To hand it to someone**. To acknowledge someone's achievement.
+26. **To get something on track**. To make decisions and take actions about something that will lead to 
+a favorable outcome.
+
+### That's a Weight off My Shoulders!
+
+1. **To be coming up**. To be about to occur. To happen in the near future.
+2. **To sneak up on somebody**. To happen or be about to happen 
+without someone's realization or preparation. By the way, you'll hear many people use the past form "snuck" as well.
+3. **To slip someone's mind**. To be forgotten.
+4. **To go in on something with someone**. To share the cost or expense of something with someone.
+5. **To not have a clue**. To not know about something at all.
+6. **To look around**. To move through a place and observe without the intention of finding something in particular.
+7. **To turn up**. To appear or be found.
+8. **To break the bank**. To spend all yourmoney on something, to empty your bank account to pay for something, 
+to pay too much for something.
+9. **Bookworm**. A person who loves to read.
+10. **To be on the case**. To already be working on a certain project, to have begun working to achieve a particular goal.
+11. **To be run-of-the-mill**. To be ordinary or typical. To be commonplace.
+12. **To tear something to pieces**. To find fault with something or harshly criticize. To insult.
+13. **To throw someone a bone**. To make a small or token gesture of support for someone, often in a patronizing way.
+14. **To shoot something down**. To dismiss or reject something, such as an idea or a suggestion.
+15. **To get on someone's nerves**. To annoy or agitate someone.
+16. **To be beat**. To be exhausted.
+17. **To call it a day**. To decide that a project, event, or situation is over. To stop working on something for the 
+day.
+18. **To put in or give your two cents**. To give your opinion or share your ideas about something.
+19. **To knock someone's socks off**. To shock or surprise someone in a pleasant or happy way by performing beyond 
+expectation.
+20. **To be in shape**. To be in good physical condition. Note that you can also say "to get in shape, 
+"meaning" to train your body and become physically fit."
+21. **To shell out**. To pay, usually a bit unwillingly.
+22. **Hands down**. Without a doubt.
+23. **To be a weight off your shoulders**. To no longer be a source of worry or concern for you.
+24. **To push your luck**. To try to get too much of a reward, to be greedy, to want too much.
 
 ## Phrasal Verbs
 
@@ -331,3 +428,4 @@ taken in.
 ## Resources
 
 - Writing in the Sciences https://www.coursera.org/learn/sciwrite
+- Easy American Idioms https://www.audible.com/pd/Easy-American-Idioms-Audiobook/B0036GTMH2
