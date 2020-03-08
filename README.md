@@ -11,6 +11,9 @@
   - [My Toe is Killing Me](#my-toe-is-killing-me)
   - [Tying the Knot](#tying-the-knot)
   - [That's a Weight off My Shoulders!](#thats-a-weight-off-my-shoulders)
+  - [I Have a Bone to Pick with You!](#i-have-a-bone-to-pick-with-you)
+  - [Like Pulling Teeth](#like-pulling-teeth)
+  - [Honey, There's Something on My Mind...](#honey-theres-something-on-my-mind)
 - [Resources](#resources)
 
 
@@ -328,7 +331,7 @@ any of them the attention they need.
 2. **To be killing someone**. To be very painful.
 3. **A beauty**. A very good or vivid example of something; in this case, a really good example of a bad injury.
 4. **To do a number on something**. To damage, destroy, or hurt something badly.
-5. **A surefire way to do something**. A way that will definitely have a certain outcome or result.
+5. **A SUREFIRE WAY TO DO SOMETHING**. A way that will definitely have a certain outcome or result.
 
 6. **To live something down**. To be allowed to forget about an
 embarrassing situation. This is used in the negative—to never
@@ -379,7 +382,7 @@ You can also say "to bail out on someone or something."
 22. **To settle down**. To grow comfortable and content in a routine or situation, especially in a relationship with 
 another person. Often, this implies growing older and more responsible, or less
 fun-loving and free, depending on how you look at it!
-23. **To be a wake-up call**. To be something that changes your view of what is important or possible.
+23. **TO BE A WAKE-UP CALL**. To be something that changes your view of what is important or possible.
 24. **To be seeing someone**. To date someone informally.
 25. **To hand it to someone**. To acknowledge someone's achievement.
 26. **To get something on track**. To make decisions and take actions about something that will lead to 
@@ -405,7 +408,7 @@ to pay too much for something.
 14. **To shoot something down**. To dismiss or reject something, such as an idea or a suggestion.
 15. **To get on someone's nerves**. To annoy or agitate someone.
 16. **To be beat**. To be exhausted.
-17. **To call it a day**. To decide that a project, event, or situation is over. To stop working on something for the 
+17. **TO CALL IT A DAY**. To decide that a project, event, or situation is over. To stop working on something for the 
 day.
 18. **To put in or give your two cents**. To give your opinion or share your ideas about something.
 19. **To knock someone's socks off**. To shock or surprise someone in a pleasant or happy way by performing beyond 
@@ -416,6 +419,111 @@ expectation.
 22. **Hands down**. Without a doubt.
 23. **To be a weight off your shoulders**. To no longer be a source of worry or concern for you.
 24. **To push your luck**. To try to get too much of a reward, to be greedy, to want too much.
+
+### I Have a Bone to Pick with You!
+
+1. **Beats me**. I don't know. I have no idea.
+2. **To have something covered**. To be responsible for something, to handle something.
+3. **TO SLIP SOMEONE'S MIND**. To be forgotten by someone.
+4. **Look who's talking!** An expression of disbelief or irony meaning 
+that someone is guilty of something he or she is blaming someone else for.
+5. **To not give a damn**. To not care.Note that some people consider
+the word "damn" to be harsh and impolite, so an alternate expression is to not give a darn.
+6. **To fly off the handle**. To become extremely agitated, excited, or angry. To react too strongly to a situation.
+7. **To make a mountain out of a molehill**. To exaggerate a situation, 
+to turn a relatively minor situation into something much bigger or more important than it should be.
+8. **To have a bone to pick with someone**. To have a problem or complaint about someone.
+9. **To get something out in the open**. To air a complaint or a grievance, to discuss something openly.
+10. **Slacker**. A lazy or irresponsible person. This expression is related to the verb "to slack off."
+11. **To be eating someone**. To bother, aggravate, or frustrate someone over a period of time.
+12. **Bent out of shape**. Annoyed or bothered by something. Upset.
+Note that this expression suggests that the reason behind the emotion is insignificant or not worth being upset about.
+13. **To lighten up**. To take a more casual or relaxed attitude. To not be overly upset or angry about something.
+14. **To lean on**. To rely or count on, to be dependent on someone else instead of being self-sufficient.
+15. **To pick up someone's slack**. To compensate for someone else's shortcomings.
+16. **To pass the buck**. To put the blame or responsibility on someone else.
+17. **To hook someone up with something**. To arrange for someone to have something. To help someone obtain something or to
+give someone something.
+18. **To screw up**. To make mistakes, to perform poorly.
+19. **To give someone a bad name**. To give someone a bad reputation.
+20. **To work your tail off**. To work very hard. To put forth great effort.
+21. **To twiddle your thumbs**. To do nothing. Literally, to have your 
+hands clasped and to move your thumbs in circles around each other.
+22. **Bull**. Nonsense. Something untrue or unbelievable. 
+23. **To chat someone up**. To talk to someone, to show interest in someone by making conversation.
+24. **To lift a finger**. To offer help. To put forth effort to do some sort of physical work.
+25. **To look like a train wreck**. To be very messy or in terrible condition. To appear as if destroyed in some kind of accident.
+26. **To pitch in**. To assist, to share in a responsibility, such as housework or bill paying.
+27. **To get off your high horse**. To stop acting superior or self righteous.
+28. **To show someone up**. To try to appear better or more competent than other people.
+29. **Goody-goody**. An unflattering name for someone who behaves
+very well, is very responsible, and never gets into any kind of trouble. An expression that suggests that someone is 
+afraid to do anything wrong.
+30. **To be at someone's throat**. To be fighting with someone. To be aggressively attacking someone.
+31. **To give something a rest**. To stop doing something, to pause or take a break from some kind of activity.
+
+### Like Pulling Teeth
+
+1. **Pain in the neck**. Annoying or bothersome.
+2. **Like pulling teeth**.Very difficult and tedious.
+3. **To get something squared away**. To tie up loose ends. To solve
+the various smaller problems of a larger troublesome situation.
+4. **To iron something out**. To fix a problem, to correct a mistake in a process.
+5. **To bite the bullet**. To accept a disagreeable solution for a difficult situation.
+6. **To flog a dead horse**. To do something that has no hope of
+succeeding or bringing about the desired result. Note that this idiom is often used with "beat" instead of "flog."
+7. **The same old story**. The same explanation for a situation given over and over again.
+8. **To give someone the runaround**. To avoid answering a question or giving someone help by treating them 
+evasively or by misleading them.
+9. **To be in someone's shoes**. To be in someone else's position or situation.
+10. **To pull up**. To access a file or other information on a computer.
+11. **To have been down that road before**. To have experienced or tried something before, especially if it was not 
+helpful or pleasant.
+12. **TO CALL THE SHOTS**. To make the important decisions.
+13. **At your wit's end**. Completely frustrated and confused about how to solve a problem.
+14. **To get on someone's case**. To aggressively bother or nag someone about something.
+15. **To be spinning your wheels**. To be putting forth an effort that is having no useful effect. To be working in vain.
+16. **To have a good mind to do something**. To be inclined to do something. To have a strong desire to do something.
+17. **To feed someone a line**. To tell someone something that is not genuine or truthful. To use a trite or 
+clichéd expression instead of the truth.
+18. **To be beyond someone**. To be impossible to understand, to be completely unbelievable.
+19. **To have your hands tied**. To be unable to do anything to help a situation.
+20. **To be out of your mind**. To be crazy, to be unreasonable or
+irrational. This expression is very often used in response to someone who proposes something completely unreasonable.
+21. **To take something out on someone**. To direct anger or
+frustration about something at someone who is not responsible for it.
+22. **To have had it with something or someone**. To be fed up with. To
+not be able to handle anymore of a situation or person.
+23. **For crying out loud...** This expresses complete frustration about a situation.
+
+### Honey, There's Something on My Mind...
+
+1. **To get something off your chest**. To say something important
+that you've been thinking about a lot.
+2. **To be on your mind**. To be something you think a lot about.
+3. **To spring something on someone**. To give someone unexpected
+news with no preparation or warning.
+4. **To break up with someone**. To end a romantic relationship.
+5. **To dump someone**. To stop being in a romantic relationship with someone.
+6. **To come out of nowhere**. To seem to happen without any logical explanation or warning.
+7. **Couch potato**. A person who sits around and does very little physical activity, often just watching TV.
+8. **To be crazy about something**. To like something a lot.
+9. **To be in seventh heaven**. To feel wonderful, to be very happy.
+10. **To move on**. To begin something else, to stop focusing on one
+person or thing and to start to think about someone or something else.
+11. **To let yourself go**. To allow yourself to be in bad physical condition because of diet or lack of exercise.
+12. **To turn someone on**. To be a turn-on. To cause an attraction, usually physical.
+13. **To drive someone up the wall**. To annoy someone very much.
+14. **TO BRING SOMETHING UP**. To start to talk about something, to introduce a topic in conversation.
+15. **To get used to something**. To become accustomed to or familiar
+with something. Notice that this expression is similar to "to be used to something, "meaning to be accustomed to or 
+familiar with something.
+16. **To grow out of something**. To become too old for something, to
+stop having an interest in something that used to be interesting.
+17. **To be the point**. To be the most important fact or consideration about a topic.
+18. **It figures**. This expression is used, often ironically, to mean that some outcome is logical, expected, or 
+unavoidable.
+
 
 ## Phrasal Verbs
 
