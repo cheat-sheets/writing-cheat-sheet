@@ -8,12 +8,16 @@
 - [Tips](#tips)
 - [Steps in the Writing Process](#steps-in-the-writing-process)
 - [Idioms](#idioms)
-  - [My Toe is Killing Me](#my-toe-is-killing-me)
-  - [Tying the Knot](#tying-the-knot)
-  - [That's a Weight off My Shoulders!](#thats-a-weight-off-my-shoulders)
-  - [I Have a Bone to Pick with You!](#i-have-a-bone-to-pick-with-you)
-  - [Like Pulling Teeth](#like-pulling-teeth)
-  - [Honey, There's Something on My Mind...](#honey-theres-something-on-my-mind)
+  - [1. My Toe is Killing Me](#1-my-toe-is-killing-me)
+  - [2. Tying the Knot](#2-tying-the-knot)
+  - [3. That's a Weight off My Shoulders!](#3-thats-a-weight-off-my-shoulders)
+  - [4. I Have a Bone to Pick with You!](#4-i-have-a-bone-to-pick-with-you)
+  - [5. Like Pulling Teeth](#5-like-pulling-teeth)
+  - [6. Honey, There's Something on My Mind...](#6-honey-theres-something-on-my-mind)
+  - [7. Now We're Cooking!](#7-now-were-cooking)
+  - [8. Fits Like a Glove!](#8-fits-like-a-glove)
+  - [9. I'm Up to My Eyeballs in Work!](#9-im-up-to-my-eyeballs-in-work)
+  - [10. She's Got You Wrapped around Her Finger](#10-shes-got-you-wrapped-around-her-finger)
 - [Resources](#resources)
 
 
@@ -277,6 +281,12 @@ It's all good.
 - **I won't hold my breath**. It means that you don't expect it to happen, so you won't bother to hold your breath 
 in anticipation, or "await with bated breath." It's used as mildly sarcastic humor. 
 Ex.: I know he promised you a good job, but I won't hold my breath for that one.
+- **To have skin in the game** - to be at risk financially because you have invested in something that you want to 
+happen. Ex.: You take more ownership of something when you have some skin in the game.
+- **Paint oneself into a corner** - leave oneself no means of escape or room to maneuver.
+Ex.: Central banks have painted themselves (us?) into a corner. 
+- **Faint of heart** - describes a person who is lacking courage, squeamish, unable to rise to the occasion.
+Ex.: This is a difficult climb that is not for the faint of heart.
 
 ### Happiness and Sadness
 
@@ -325,14 +335,13 @@ any of them the attention they need.
 - **Give it a shot** - give something a try. 
 - **Wave a magic wand** - find an easy way to solve a problem Ex.: I want to wave a magic wand and make things better.
 
-### My Toe is Killing Me!
+### 1. My Toe is Killing Me!
 
 1. **To be tied up with something or someone**. To be busy.
 2. **To be killing someone**. To be very painful.
 3. **A beauty**. A very good or vivid example of something; in this case, a really good example of a bad injury.
 4. **To do a number on something**. To damage, destroy, or hurt something badly.
 5. **A SUREFIRE WAY TO DO SOMETHING**. A way that will definitely have a certain outcome or result.
-
 6. **To live something down**. To be allowed to forget about an
 embarrassing situation. This is used in the negative—to never
 or not live something down. A common way you'll hear this expression is the phrase "I'll never live this down!"
@@ -351,7 +360,7 @@ especially after an illness or injury. To be back in control of your normal acti
 17. **To drop by**. To visit someone.
 18. **To follow up on something**. To address or check on a situation later.
 
-### Tying the Knot
+### 2. Tying the Knot
 
 1. **To tie the knot**. To get married.
 2. **To take the plunge**. To follow through on a big or life-changing
@@ -388,7 +397,7 @@ fun-loving and free, depending on how you look at it!
 26. **To get something on track**. To make decisions and take actions about something that will lead to 
 a favorable outcome.
 
-### That's a Weight off My Shoulders!
+### 3. That's a Weight off My Shoulders!
 
 1. **To be coming up**. To be about to occur. To happen in the near future.
 2. **To sneak up on somebody**. To happen or be about to happen 
@@ -420,7 +429,7 @@ expectation.
 23. **To be a weight off your shoulders**. To no longer be a source of worry or concern for you.
 24. **To push your luck**. To try to get too much of a reward, to be greedy, to want too much.
 
-### I Have a Bone to Pick with You!
+### 4. I Have a Bone to Pick with You!
 
 1. **Beats me**. I don't know. I have no idea.
 2. **To have something covered**. To be responsible for something, to handle something.
@@ -462,7 +471,7 @@ afraid to do anything wrong.
 30. **To be at someone's throat**. To be fighting with someone. To be aggressively attacking someone.
 31. **To give something a rest**. To stop doing something, to pause or take a break from some kind of activity.
 
-### Like Pulling Teeth
+### 5. Like Pulling Teeth
 
 1. **Pain in the neck**. Annoying or bothersome.
 2. **Like pulling teeth**.Very difficult and tedious.
@@ -496,7 +505,7 @@ frustration about something at someone who is not responsible for it.
 not be able to handle anymore of a situation or person.
 23. **For crying out loud...** This expresses complete frustration about a situation.
 
-### Honey, There's Something on My Mind...
+### 6. Honey, There's Something on My Mind...
 
 1. **To get something off your chest**. To say something important
 that you've been thinking about a lot.
@@ -524,6 +533,141 @@ stop having an interest in something that used to be interesting.
 18. **It figures**. This expression is used, often ironically, to mean that some outcome is logical, expected, or 
 unavoidable.
 
+### 7. Now We're Cooking!
+
+1. **To be cooking**. To be on the right track, to bemaking very good
+progress, to be on a roll with ideas.
+2. **To cost an armand a leg**. To be very expensive.
+3. **To break something down**. To divide something into smaller
+parts in order to explain it or understand it more easily.
+4. **Step by step**. One piece or part at a time, little by little.
+5. **Out of this world**. Outstanding, incredibly good.
+6. **Tricks of the trade**. Information that experienced people in a
+field know that makes their work easier or the product of their labor of a better quality.
+7. **From scratch**. Homemade, by hand, from basic rather than prepackaged ingredients.
+8. **Top-notch**. Of the highest quality.
+9. **To dream up**. To invent or conceive of.
+10. **Zip**. Spiciness, flavor, tanginess. Not usually used with reference
+to sweet foods. Note that zing, bite, and kick are all used to mean the same thing.
+11. **To stick to the ribs**. To be filling. To be substantial.
+12. **To weigh someone down**. To make someone feel slow or tired.
+Said of something experienced as a weight—emotional, physical, psychological, etc.
+13. **To come upon**. To discover by accident.
+14. **To come up with**. To create something original.
+15. **Something to die for**. Something that is amazing or great.
+16. **To lend a hand**. To help. Notice that "a hand" can be used to
+mean "help" in other expressions—to offer a hand, to ask for a hand, to need a hand, etc.
+17. **TO GIVE IT YOUR BEST SHOT**. To try the best that you can.
+18. **The proof is in the pudding**. A saying that means that the true
+measure of how good something is can only be judged once it ismade or done.
+19. **In the nick of time**. Just in time, with no extra time to spare.
+20. **To lay out**. To arrange in a flat position, to spread out.
+21. **Something to sink your teeth into**. Something of substance or depth. Also used in reference to non-food items.
+22. **The devil's in the details**. A saying that means that changes in
+seemingly small or minor elements can make a big difference in the outcome.
+23. **The secret's in the sauce**. A saying that means that the secret
+that makes something special or valuable is hidden or not immediately visible.
+
+### 8. Fits Like a Glove!
+
+1. **LIKE LOOKING FOR A NEEDLE IN A HAYSTACK**. Looking for something that is very difficult to find.
+2. **To check something out**. To see or find out about something.
+3. **To be someone's cup of tea**. To be pleasing or interesting to someone. To fit someone's tastes or interests.
+4. **To pay through the nose**. To pay a lot of money.
+5. **To wake up on the wrong side of the bed**. To be in a bad mood.
+6. **WET BLANKET**. Unenthusiastic or disagreeable, lacking the appropriate attitude or spirit for a particular situation.
+7. **Out of style**. No longer in fashion or vogue.
+8. **To drag someone somewhere**. To convince someone to go or come somewhere they don't want to be.
+9. **To keep up with the trends**. To follow new fashions or trends very closely.
+10. **To try something on**. To wear a piece of clothing to see if it fits
+properly or looks nice on a person. Notice that you can extend 
+this idiom to "try something on for size." It can mean the same thing as to try an article of clothing on, or it can be used
+generally to mean to try something and see how it feels or works.
+11. **Low-cut**. Describes clothing that is cut to reveal skin, to cover
+less of the body than usual.
+12. **It doesn't leave much to the imagination**. Said of clothes that
+reveal a lot of skin, that are very tight, or that are nearly see through.
+13. **Hot**. Physically attractive, sexually appealing.
+14. **To turn heads**. To be beautiful, to cause people to turn and look
+at you.
+15. **To drop something**. To forget something, or to stop talking about something.
+16. **To cough something up**. To find the means to provide something, especially money.
+17. **Knockoff**. A cheap and low-quality reproduction of something expensive.
+18. **Bargain basement**. The area of a store where older sale items
+are displayed for discount prices. This expression is also used to describe any cheap or low-quality clothing.
+19. **THE CLOTHES MAKE THE MAN**. An expression meaning that people
+are judged by their appearance, including especially the clothes they choose to wear.
+20. **To throw on**. To put clothes on hastily and thoughtlessly.
+21. **Make a nice impression**. To give people a favorable idea of who you are.
+22. **To come off as**. To give a certain impression, to suggest a certain attitude or style.
+23. **Busy**. Describing something that is overly designed—clothes,
+patterns,wallpaper, art, etc.—or has too many elements.
+24. **One of a kind**. Unique. Unlike anything else.
+25. **It's very me**. It's typical of something I'd wear, do, or say. It's representative of me.
+26. **To burst someone's bubble**. To disappoint someone. To give someone disappointing news.
+27. **To fit someone like a glove**. To fit someone perfectly, as if the thing that fits were made specifically for that person.
+28. **To go with something**. To match something. To look nice together with another thing.
+
+### 9. I'm Up to My Eyeballs in Work!
+
+1. **To be under the gun**. To be under pressure or stress.
+2. **To be up to one's eyeballs in something**. To have a lot of or too much of something.
+3. **To try one's hand at something**. To try something for the first time.
+4. **TO BITE OFF MORE THAN YOU CAN CHEW**. To commit yourself to more than you can handle.
+5. **To burn the midnight oil**. To be awake and doing something late at night.
+6. **To buckle down**. To dedicate yourself to an activity, to work very hard and seriously at something.
+7. **To bite the dust**. To break. To be no more. To die.
+8. **To be a pain in the neck**. To be an annoyance, a difficulty, a hindrance.
+9. **To be between a rock and a hard place**. To be in a position where
+you can't do what you want to do because you're caught between two options that are both difficult or disagreeable.
+10. **To not be playing with a full deck**. To behave in an illogical or crazy way. To be crazy.
+11. **YOU SCRATCH MY BACK, I'LL SCRATCH YOURS**. Said about a situation in
+which two people can benefit from each other's help. Each will
+do the other a favor in order to get what he or she wants from the other person.
+12. **To blow up at someone**. To suddenly get very angry with someone and yell. To explode.
+13. **To turn in, or to turn in for the night**. To go to bed.
+14. **To cut corners**. To fail to spend the proper amount of money, effort, or time on something.
+15. **On a positive note**. To talk about happier issues.
+16. **To be all about something**. To be very interested or active in something. To like something very much.
+17. **To not have a prayer**. To not have a chance or hope.
+18. **To be old hat**. To be something someone is accustomed to.
+19. **To be at something**. To engage or take part in something. Notice
+that you can also say "keep at" something,meaning to continue to take part in something.
+20. **To be green**. To be new or inexperienced.
+21. **To be a shoo-in**. To be the best or most likely candidate for something.
+22. **To make someone's day**. To cause someone great happiness, joy, or pride.
+
+### 10. She's Got You Wrapped around Her Finger
+
+1. **To run into somebody**. To meet somebody unexpectedly.
+2. **To have one on the way**. To be pregnant. To be expecting a child.
+3. **A piece of work**. A complicated, interesting, or amusing person. Often said ironically.
+4. **A chip off the old block**. Said of children when they greatly
+resemble one of their parents in personality or behavior.
+5. **You don't say**. An expression used to show mild surprise, like
+saying "really?". This can also be a sarcastic expression, to show that you don't find something as interesting as someone else does.
+6. **Hardheaded**. Stubborn.
+7. **Up to something**. Involved in some kind of mischief. Planning something.
+8. **Something else**. An expression meaning "something noteworthy" or "something interesting or worth discussion."
+9. **To take after**. To have the same traits or characteristics as another person.
+10. **To have a taste of one's own medicine**. To be on the receiving end of behavior that one has subjected others to.
+11. **To pay the piper**. To suffer the consequences of your actions, after a long time of not suffering any consequences.
+12. **On the ball**. Ready, alert, highly prepared.
+13. **To turn your back on someone**. Literally, to turn away from or
+look the other way. Note that this expression can also be used figuratively,meaning to abandon or stop caring about someone.
+14. **To keep up with something or someone**. To go at the same speed or pace, to be aware of changes or current conditions.
+15. **To be bushed**. To be very tired.
+16. **To have a blast**. To have a lot of fun, to have a great time.
+17. **TO BE A PUSHOVER**. To be easily convinced or persuaded.
+18. **Set on something**. Fixated on something and determined to have it.
+19. **To have a fit**. To have a temper tantrum. To lose control of your emotions. To display your anger.
+20. **To cave in**. To give in. To allow yourself to be persuaded or tempted.
+21. **To buckle**. To be persuaded, to change your mind.
+22. **To have someone wrapped around your finger**. To cause someone to be obedient to you. To influence someone very
+greatly, to exert far too much influence on someone.
+23. **To be hooked**. To enjoy something very much, to be convinced of 
+something. In the context of drugs or alcohol, "hooked" can also mean "addicted."
+24. **When it comes to something**. Regarding, with regard to, or concerning something.
 
 ## Phrasal Verbs
 
