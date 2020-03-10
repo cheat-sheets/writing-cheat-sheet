@@ -18,6 +18,9 @@
   - [8. Fits Like a Glove!](#8-fits-like-a-glove)
   - [9. I'm Up to My Eyeballs in Work!](#9-im-up-to-my-eyeballs-in-work)
   - [10. She's Got You Wrapped around Her Finger](#10-shes-got-you-wrapped-around-her-finger)
+  - [11. That's Putting the Cart before the Horse.](#11-thats-putting-the-cart-before-the-horse)
+  - [12. Like a Bat out of Hell](#12-like-a-bat-out-of-hell)
+  - [13. It's a Steal!](#13-its-a-steal)
 - [Resources](#resources)
 
 
@@ -669,6 +672,105 @@ greatly, to exert far too much influence on someone.
 something. In the context of drugs or alcohol, "hooked" can also mean "addicted."
 24. **When it comes to something**. Regarding, with regard to, or concerning something.
 
+### 11. That's Putting the Cart before the Horse.
+
+1. **TO FILL SOMEONE IN ON SOMETHING**. To inform someone of something he or she missed.
+2. **To make it to an event**. To attend an event.
+3. **BOGGED DOWN**. Busy, involved in tedious details.
+4. **To hear something through the grapevine**. To learn of something through an unofficial channel.
+5. **To give someone the boot**. To make someone leave, to send someone away. Here it is used to mean "lay someone off."
+6. **To leap at the chance**. To be eager to do something, to be very willing to accept an opportunity.
+7. **Win-win, or a win-win situation**. A situation that is beneficial to everyone concerned.
+8. **To take on something**. To become responsible for something. To agree to a new responsibility.
+9. **Hold your horses**. Wait. Move more slowly.
+10. **To put the cart before the horse**. To do something out of logical order, to perform a step before its 
+appropriate time.
+11. **To have your eye on someone**. To watch or examine someone closely.
+12. **To go south**. To go wrong. To end or stop because of problems.
+13. **To get something**. To understand something.
+14. **To cover your back**. To take steps that will protect you in the 
+future. To be very shrewd and cautious in protecting yourself against being held responsible for potential problems.
+15. **To hit the nail on the head**. To identify the important issue or main point of a situation with precision.
+16. **Swamped**. Very busy.
+17. **To come through**. To happen, to materialize, to become a real event.
+18. **To fall on deaf ears**. To be pointless to mention, suggesting that
+the person you'd like to talk to won't care about your complaint, opinion, or problem.
+19. **To jump down someone's throat**. To overreact and attack someone verbally.
+20. **Cornered**. Threatened. Feeling as if you don't have many options left.
+21. **To go over someone's head**. To not confront someone about a
+problem, but instead bring it up with another person who is higher in authority.
+22. **To not hold your breath**. To not wait for something to happen with much hope.
+23. **To keep a low profile**. To do nothing that would draw attention to you or distinguish you from others.
+24. **Pink slip**. Notification that you've been fired. The full expression is "to get a pink slip."
+25. **Written in stone**. Fixed, firm, unchangeable.
+
+### 12. Like a Bat out of Hell
+
+1. **Fender bender**. A car accident that causes minimal damage, usually only to the front or back bumpers.
+2. **To barrel out of somewhere**. To leave somewhere very quickly,
+usually with little attention to your surroundings. Notice that
+you may also hear barrel up, barrel down, barrel along, barrel in, etc.
+3. **To ride someone's tail**. To follow someone at an uncomfortably
+close or dangerous distance.Notice that this expression doesn't necessarily have to be used for driving only.
+4. **To rubberneck**. To drive slowly past the scene of an accident while turning your neck to see what happened.
+5. **To speed up**. To accelerate.
+6. **To cut someone off**. To pass in front of someone very closely and prevent them from moving ahead.
+7. **To sideswipe someone**. To hit someone with the side edge of something.
+8. **To come up from behind**. To approach someone from behind.
+Notice that you can also say come up from the side, come up from below, etc.
+9. **Blind spot**. A part of someone's field of vision that is obstructed, so that things in this area cannot be seen.
+10. **To slam on the brakes**. To press the brake pedal in a car forcefully and suddenly.
+11. **To nail someone**. To hit or do damage to someone.
+12. **To pull over**. To drive one's car to the side of the road in order to stop.
+13. **To swap information**. To exchange names, phone numbers,
+license plate numbers, and insurance company information, especially after a car accident.
+14. **Like a bat out of hell**. Moving in a fast and almost crazy manner.
+15. **Hit and run**. A car accident where the person responsible for the accident leaves the scene before the police arrive.
+16. **To take off**. To leave quickly.
+17. **To be looking at**. To be in a position to expect something.
+18. **To track someone down**. To find someone by following clues.
+19. **To give someone a piece of your mind**. To give someone your opinion about him or her or something he or she has done.
+Usually it is a negative and harshly critical opinion.
+20. **To lose sleep over something**. To worry about something. To feel upset or guilty about something.
+21. **To take someone to the cleaners**. To fight for economic compensation until the other person has no more money left.
+22. **To count your chickens before they hatch**. To depend on a
+beneficial or positive future event as if it were certain, even though it may not happen.
+23. **To bark up the wrong tree**. To be seeking something from the
+wrong source. To be asking for something from a source that cannot or will not provide it.
+24. **To be caught up in something**. To be involved in something wrong, illegal, or unethical.
+25. **To total a car**. To inflict damages that, if repaired, would cost more than the value of the car.
+26. **To sit tight**. To wait, to be patient.
+
+### 13. It's a Steal!
+
+1. **To be in the market for something**. To want to buy something, to be looking to buy something.
+2. **To mull something over**. To think about something. To consider a situation.
+3. **To be a steal**. To be a great bargain. To get a lot of value for your money.
+4. **To go up**. To increase, to become higher or larger.
+5. **To go through the roof**. With reference to money, price, value, it
+means "to become very high." To have an extreme, angry reaction.
+6. **To be a drop in the bucket**. To be small in comparison to
+something else, to be a very small portion of some much larger total.
+7. **To clean up**. To make a very large profit, to make a lot of money.
+8. **To take your time doing something**. To not rush. To do something slowly and carefully.
+9. **To be burned**. To be betrayed, fooled, or hurt, especially after expecting a positive outcome.
+10. **To eye something up**. To look at, examine, or consider visually.
+11. **To chomp at the bit**. To be very anxious or eager to do something.
+12. **To strike while the iron's hot**. To take advantage of a favorable opportunity.
+13. **To talk something over**. To discuss carefully in order to come to a decision.
+14. **To make yourself scarce**. To leave, to move away from someone. Rude when said to someone else.
+15. **A dream come true**. Something wonderful, something so good it's as though it came out of a dream.
+16. **To keep in mind**. To remember. To consider.
+17. **To talk something up**. To praise something verbally. To speak highly of something or exaggerate its value.
+18. **A catch**. A drawback or negative quality that might not be
+obvious. In other contexts, "a catch" is a person who would be good to date.
+19. **To be hung up on something**. To find fault with something, to identify a weakness or a drawback in something.
+20. **At your fingertips**. Readily available.
+21. **To lose your shirt**. To become financially ruined. To lose a lot of
+money.
+22. **A crapshoot**. A chance or risk, named after the dice game.
+23. **Nest egg**. A sum of money saved up and set aside.
+        
 ## Phrasal Verbs
 
 ### In/out
