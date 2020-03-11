@@ -21,6 +21,9 @@
   - [11. That's Putting the Cart before the Horse.](#11-thats-putting-the-cart-before-the-horse)
   - [12. Like a Bat out of Hell](#12-like-a-bat-out-of-hell)
   - [13. It's a Steal!](#13-its-a-steal)
+  - [14. Off the Beaten Track](#14-off-the-beaten-track)
+  - [15. Turning Over a New Leaf](#15-turning-over-a-new-leaf)
+  - [16. Face the Music!](#16-face-the-music)
 - [Resources](#resources)
 
 
@@ -771,6 +774,110 @@ money.
 22. **A crapshoot**. A chance or risk, named after the dice game.
 23. **Nest egg**. A sum of money saved up and set aside.
         
+### 14. Off the Beaten Track
+
+1. **To take the scenic route**. Jokingly, to get lost and take a long time to reach a destination.
+2. **Off the beaten track**. Remote, faraway, hard to get to, and not
+very well known. Notice that you can also say "off the beaten path."
+3. **Mixed-up**. Confused.
+4. **IT WILL BE A COLD DAY IN HELL BEFORE SOMETHING HAPPENS**. It is highly unlikely or improbable that something will happen.
+5. **The middle of nowhere**. A very remote place, especially someplace wild and far away from people or towns.
+6. **To wing it**. To do something without following instructions or directions. To improvise.
+7. **To shake off the dust**. To rest and compose yourself after a long
+trip, as if you had been walking for a long time and were covered in dust from the road.
+8. **To freshen up**. To wash up and relax. To tidy your appearance and overall condition after something tiring.
+9. **To whip up**. To prepare something, especially food, in a fast and improvised way.
+10. **To catch up**. To talk and share recent news after not having seen someone in a while.
+11. **To unwind**. To relax and free yourself from stress.
+12. **To kick off**. To begin something.
+13. **R and R**. Rest and Relaxation. 
+14. **To recharge the batteries**. To rest and regain physical and psychological strength.
+15. **A weekend getaway**. A place to go to for the weekend where you can rest and relax.
+16. **The rat race**. The total system of life centered around working
+hard—commuting, struggling to be successful and get ahead, dealing with the stresses of life,worrying about bills, etc.
+17. **Culture shock**. Reaction to a very significant change in way of life.
+18. **The sticks**. The country. A rural area.
+19. **A fish out of water**. Out of place, not in your natural environment.
+20. **The boondocks**. The country, the rural areas far away from cities 
+or big towns. Note that this expression is often shortened to "the boonies."
+21. **A place to hang your hat**. A place to call home, a place to feel at home.
+22. **TO PAN OUT**. To be successful, to work out well.
+23. **To snap out of it**. To recover after a state of confusion, sadness, or psychological fatigue.
+24. **The locals**. The people who live in a certain place. The local people.
+25. **To stick out like a sore thumb**. To be very visible or obvious, to
+draw attention to yourself because you are different in some noticeable way.
+26. **To size someone up**. To examine or evaluate someone, especially visually.
+27. **To give someone the cold shoulder**. To fail to be warm and welcoming to someone, to ignore someone, especially on
+purpose.
+28. **To start from square one**. To start again, to start a process from the very beginning.
+29. **To reach out**. To extend a welcome to a person, to put forth an effort to communicate with someone.
+30. **To make small talk**. To make insignificant conversation with someone, especially only to be polite.
+31. **To break the ice**. To put an end to a time of silence or lack of
+communication. To initiate a conversation or friendliness with someone.
+32. **Lined up at your door**. Eager and in large numbers.
+33. **To raise eyebrows**. To bring attention to yourself, to cause people
+to notice you as someone different or unconventional. Notice that this expression is similar to "stick out like a sore thumb,"
+but there's a hint of amoral judgment with "raise eyebrows."
+34. **Good old-fashioned**. Traditional.
+35. **On the clock**. On a strict schedule, especially on working time.
+
+### 15. Turning Over a New Leaf
+
+1. **To take a load off**. To rest by sitting down.
+2. **In a nutshell**. Concisely and quickly explained.
+3. **To make a clean break**. To forget about something in the past, to start fresh.
+4. **To turn over a new leaf**. To begin a new project or period in your life.
+5. **To be up in the air**. To not have direction or definite shape.
+6. **NO BIG DEAL**. Not important.
+7. **To put something off**. To delay something, to postpone something, to procrastinate.
+8. **To have a foot in the door**. To be in a situation that could lead to
+better opportunities. Notice that you may also "get a foot in the door" or "give someone a foot in the door."
+9. **To show up**. To arrive.
+10. **The straw that broke the camel's back**. An event or thing that by
+itself is insignificant, but added to other problems is just enough to leave a big impact or cause a big change.
+11. **To have something in mind**. To have an idea or conception about something.
+12. **To get on your feet**. To become stable financially, emotionally, socially, etc.
+13. **To get a break**. To be given an opportunity to do something you want to do.
+14. **To have two left feet**. To be ungraceful, to move in a clumsy or awkward way, especially while dancing.
+15. **To be hard on someone**. To be strict or difficult with someone, to be demanding, to be overly critical or disciplinary.
+16. **To stick to someone or something**. To stay with someone or something.
+17. **By the way**. This expression introduces an afterthought. It is
+used before saying something that is somehow related to what's already been said.
+18. **To hit the road**. To begin to travel or move. To set off on a trip.
+19. **To be looking up**. To seem positive, to suggest a positive outcome or improvement.
+
+### 16. Face the Music!
+
+1. **To give someone a break**. To hold back criticism, judgment, or effort against someone.
+2. **To brush something off**. To fail to take something seriously. To treat something as unimportant or inconsequential.
+3. **To put something away**. To save something, such as money.
+4. **To burn through something**. To use something very fast, with little care for future supplies.
+5. **To live paycheck-to-paycheck**. To earn only enough money to 
+meet weekly or monthly bills, to not be able to save or spend on non essentials.
+6. **No skin off someone's nose**. To be of no concern or importance
+to someone. To fail to affect someone. To say "it's no skin off your nose" means that there's an inconvenience only for the
+speaker, but none for the listener.
+7. **To make your own way in the world**. To support yourself, to be responsible for your own needs in life.
+8. **To get the ball rolling**. To get started doing something.
+9. **To get your feet wet**. To get experience, to try something out.
+10. **Like talking to a wall**. Communicating with someone who doesn't understand or listen.
+11. **To go about something**. To handle, to act, or to perform in a situation or with a certain goal.
+12. **To have your head in the clouds**. To be a dreamer, to fail to be realistic or pay attention to realistic needs.
+13. **To sell out**. To betray your principles for money.
+14. **To get along with**. To behave in an agreeable way with someone.
+15. **TO SEE EYE To EYE**. To agree.
+16. **To take charge of something**. To become responsible for something and make active decisions about it.
+17. **To wake up and smell the coffee**. To acknowledge the reality of a situation.
+18. **Neither here nor there**. To not be the point. To not matter or be important in the current context.
+19. **To cut the cord**. To detach yourself from someone or something
+that you used to have strong influence or control over. The image is of a baby being physically attached to his or her
+mother by the umbilical cord.
+20. **It's about time**. To be the right time. This expression may also 
+communicate the opinion that something should have been done a long time ago.
+21. **TO FACE THE MUSIC**. To confront or accept unpleasant realities or consequences of bad actions.
+22. **To sink or swim**. To be in a situation where you must either perform your best or fail.
+23. **To cut someone off**. To stop someone's supply of something, often money or support.
+
 ## Phrasal Verbs
 
 ### In/out
