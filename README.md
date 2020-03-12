@@ -24,6 +24,10 @@
   - [14. Off the Beaten Track](#14-off-the-beaten-track)
   - [15. Turning Over a New Leaf](#15-turning-over-a-new-leaf)
   - [16. Face the Music!](#16-face-the-music)
+  - [17. Let's Catch a Flick, Then Grab a Bite.](#17-lets-catch-a-flick-then-grab-a-bite)
+  - [18. Take the Bull by the Horns.](#18-take-the-bull-by-the-horns)
+  - [19. Just Checking In...](#19-just-checking-in)
+  - [20. Just Go with the Flow!](#20-just-go-with-the-flow)
 - [Resources](#resources)
 
 
@@ -877,6 +881,116 @@ communicate the opinion that something should have been done a long time ago.
 21. **TO FACE THE MUSIC**. To confront or accept unpleasant realities or consequences of bad actions.
 22. **To sink or swim**. To be in a situation where you must either perform your best or fail.
 23. **To cut someone off**. To stop someone's supply of something, often money or support.
+
+### 17. Let's Catch a Flick, Then Grab a Bite.
+
+1. **To pack up shop**. To prepare a place in order to leave it.
+2. **To be out the door**. To leave. To be gone.
+3. **To feel up to something**. To have the desire to do something.
+4. **To stand someone up**. To not show up for a date or appointment without giving the other person advance warning.
+5. **To stew over something**. To be quietly angry about something.
+6. **To cut someone some slack**. To give someone a break. To be understanding of someone's situation.
+7. **To fall through**. To not be accomplished. To not work out.
+8. **To leave someone high and dry**. To fail to do something that
+someone else was depending on. To bail on someone without warning or trying to make up for it in some other way.
+9. **To make it up to someone**. To compensate someone for
+something, especially something that you've done wrong. To do something in order to apologize.
+10. **In the meantime**. While waiting. In the time that passes between one event and another.
+11. **To let off some steam**. To release or let go of built-up energy, anxiety, or pressure.
+12. **Low-key**. Relaxed and quiet. Simple.
+13. **Like a chicken with its head cut off**. Moving around quickly and
+crazily, as if without reason or thought.
+14. **To catch a flick**. To see a movie.
+15. **A chick flick**. A romantic or emotional movie, as opposed to an
+action movie or thriller, suggesting (chauvinistically) that these movies appeal mostly to women.
+16. **To zone out**. To stop thinking or become unaware of one's environment.
+17. **A play-by-play**. A moment to moment description of events, either as they happen or after the fact.
+18. **To let someone off easy**. To allow someone to get away with unacceptable behavior with only a light punishment. A similar
+expression is "to let someone off the hook." This means to not hold someone responsible for something, or to not punish him
+or her for a mistake or misdeed.
+19. **To grab a bite**. To eat a snack or light meal, usually outside of the house.
+20. **To be so hungry you could eat a horse**. To be very hungry. Used humorously.
+21. **To even the score**. To settle things, to make things even, to arrive at a fair resolution between two people.
+22. **To be "on" someone**. To be someone's responsibility, especially financially.
+
+### 18. Take the Bull by the Horns.
+
+1. **To take the wind out of someone's sails**. To take away someone's enthusiasm or hope for something.
+2. **A take on something**. An opinion or interpretation of something.
+3. **To talk a big game**. To exaggerate one's abilities or powers.
+4. **To back something up**. To support, to lend evidence or strength to something.
+5. **To be wet behind the ears**. To be inexperienced or new at something.
+6. **In the same boat**. In the same situation.
+7. **To be or get canned**. To be or get fired.
+8. **To pass up for something**. To fail to consider for something or to grant a reward for something.
+9. **To earn peanuts**. To earn very little money.
+10. **To make ends meet**. To earn enough money to pay for one's expenses.
+11. **To be on the back burner**. To be put off, to not be taken care of immediately.
+12. **To be a match made in heaven**. To be perfect together.
+13. **To have someone's name on it**. To belong to someone, to be the
+logical or rightful property or achievement of a particular person.
+14. **To get or have someone where you want him or her**. To maneuver someone into a position or situation that benefits you.
+15. **To be hard-pressed**. To be pressured by extreme necessity to do something.
+16. **To fill a slot**. To hire a person for an open or available position.
+17. **To have your ducks in a row**. To have everything orderly and planned out.
+18. **To step up to the plate**. To volunteer yourself, to act responsibly in a time of need.
+19. **To have your fingers in too many pies**. To be committed to too many goals or projects.
+20. **To take on**. To make yourself responsible for something, to agree to an obligation.
+21. **To jump the gun**. To do something too early, to act too quickly.
+22. **To take the bull by the horns**. To approach a situation directly and with determination.
+23. **To put your best foot forward**. To present your best attributes and qualities.
+
+### 19. Just Checking In...
+
+1. **To check in with someone**. To talk to or visit with someone for
+the purpose of saying hi, or letting someone know that you're okay.
+2. **To have a rough time of it**. To experience difficulty dealing with a situation.
+3. **To feel or be under the weather**. To feel ill, to feel less than healthy.
+4. **To catch a bug**. To become sick with a cold or flu.
+5. **To get over something**. To no longer suffer the pain or discomfort of something. This expression can also mean," to
+move on, to feel better after a difficult situation."
+6. **To be back on your feet**. To recover from sickness, to feel healthy again.
+7. **To be up to speed on something**. To know or have all the necessary information about something.
+8. **To pass away**. To die.
+9. **To pull through**. To overcome a temporary difficult situation, including a serious injury or illness.
+10. **To take a nose dive**. To become worse very quickly. Notice that "nose-dive" is also a verb.
+11. **To go downhill**. To become bad very quickly. To deteriorate.
+12. **To catch off-guard**. To catch someone unprepared. To happen without expectation or by surprise.
+13. **To take something**. To react to a situation emotionally. To respond to something.
+14. **To be hanging in there**. To handle something as well as can be expected, especially a very difficult situation.
+15. **To be up to your neck in something**. To have a lot of something to deal with, look after, or take care of.
+16. **To cost a pretty penny**. To be expensive.
+17. **To be worth every dime**. To be a reasonable match of value and cost.
+18. **To bend over backwards**. To do more than is required or expected in order to help someone.
+19. **To take a toll on someone**. To have negative consequences for someone.
+20. **To pay your respects**. To visit the family of a deceased person in order to show you care and tell them you are sorry.
+21. **To catch a flight**. To take a plane to somewhere, sometimes on short notice.
+22. **To take off from something**. To not attend your normally scheduled activity, such as work.
+
+### 20. Just Go with the Flow!
+
+1. **To have a screw loose**. To be crazy. To be thinking unreasonably.
+2. **To be one to do something**. This expression is used to
+communicate someone's typical or characteristic behavior.
+Notice that this expression is most commonly used in the negative.
+3. **To throw in the towel**. To quit. To stop doing something.
+4. **Keep your shirt on!** Remain calm. Relax. Be patient.
+5. **A stick in the mud**. A boring person. Someone who's uptight and spoils the fun.
+6. **To go with the flow**. To take things as they come. To not worry or try to anticipate the future.
+7. **To be bound to happen**. To be extremely likely to happen, to be certain.
+8. **A security blanket**. Something that makes someone feel safe, even if it does not actually provide safety.
+9. **To give something a whirl**. To give something a shot. To try something.
+10. **To be batting a thousand**. To be on a roll. To be performing very
+well. Note that this can also be used sarcastically to imply that someone is doing poorly.
+11. **To take to**. To find an interest in, to learn that you enjoy something.
+12. **Like a duck to water**. To act as if you're in your natural environment. To be at ease doing something.
+13. **Poetry in motion**. Someone or something that moves gracefully.
+14. **To get the show on the road**. To begin something. To start doing something.
+15. **To make up your mind**. To decide.
+16. **It's all downhill from here**. Everything is easy after this moment.
+17. **To sleep like a log**. To sleep so well that you hardly move.
+18. **To buy the farm**. To die. This expression is usually used in a lighthearted or joking way.
+19. **To give something a jump start**. To provide help,motivation, or incentive to start something.
 
 ## Phrasal Verbs
 
