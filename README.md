@@ -969,7 +969,7 @@ move on, to feel better after a difficult situation."
 
 ### 20. Just Go with the Flow!
 
-1. **To have a screw loose**. To be crazy. To be thinking unreasonably.
+1. **TO HAVE A SCREW LOOSE**. To be crazy. To be thinking unreasonably.
 2. **To be one to do something**. This expression is used to
 communicate someone's typical or characteristic behavior.
 Notice that this expression is most commonly used in the negative.
